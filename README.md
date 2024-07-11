@@ -1,0 +1,2 @@
+# malik-akbari
+afghancell.af
